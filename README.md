@@ -1,0 +1,1 @@
+# magazineB_clone
